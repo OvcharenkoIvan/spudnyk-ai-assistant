@@ -1,0 +1,1 @@
+# spudnyk-ai-assistant
